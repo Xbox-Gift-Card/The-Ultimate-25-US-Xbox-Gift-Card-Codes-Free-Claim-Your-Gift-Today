@@ -2,7 +2,7 @@
 
 In today's fast-paced digital world, gaming has become one of the most popular forms of entertainment. With an Xbox, you gain access to a vast library of games, exclusive content, and online multiplayer experiences. However, one common hurdle many gamers face is the cost of these games and subscriptions. That's where Xbox Gift Cards come in handy, offering a convenient way to purchase new games, downloadable content (DLC), or even subscription services like Xbox Game Pass.
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/y74CQ)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 **But What If We Told You That You Could Get a $25 US Xbox Gift Card for FREE?**
 
